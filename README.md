@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LULJ030812HNLNPNA8
+LULJ030812HNLNPNA8
